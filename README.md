@@ -10,3 +10,9 @@ Amongst Indian chess players there are 76 Grandmasters (GM); 124 International M
 3	Gukesh D
 4	Arjun Erigaisi
 5	Pentala Harikrishna
+
+- Telugu Warriors
+- Chennai Riders
+- Mumbai Fighters
+
+
