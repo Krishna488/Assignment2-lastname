@@ -15,5 +15,12 @@ My Favorite Family Vacation Spot As soon as I got of the plane and breathed in t
 | Dubai          |  Vaccation              |       30           |
 
 
+---
+
+**Pithy Quotes**
+
+> Just keep being true to yourself, if you're passionate about something go for it. -_Blake Lewis_-
+>
+> Have fun and have faith that when you use your heart to navigate through life. -_Scoot_
 
 
